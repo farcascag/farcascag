@@ -4,4 +4,4 @@ postal 1 dude and scout heavykin ... i have a lot of stuff going on and i can be
 
 purged my friends list recently, im sorry if i unadded you ... i was probably either on your dni or we weren't very close - i don't normally add people randomly if i'm never going to talk to them again, sorry if i ignore friend rqs...
 
-i project my problems onto my kins to cope. if i say something about a character that makes you uncomfy, just tell me not to. because it doesnt matter how many times you say "he would NEVER do that!!!!!" necrodude will always be my unhealthy projection
+i project my problems onto my kins to cope. if i say something about a character that makes you uncomfy, just tell me not to. because it doesnt matter how many times you say "they would NEVER do that!!!!!" i'm still going to cope that way
