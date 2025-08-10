@@ -1,4 +1,4 @@
-HI i'm keith ... i prefer going by kay or dude if i dont know u. my previous github user was onlymyweapon. I like a lot of stuff. main interests p͟o͟s͟t͟a͟l͟  m͟e͟t͟a͟l͟o͟c͟a͟l͟y͟p͟s͟e͟  m͟a͟y͟h͟e͟m͟  k͟m͟f͟d͟m͟  (and many other bands)
+HI i'm keith ... i prefer going by kay or dude if i dont know u. my previous github user was onlymyweapon. I like a lot of stuff. main interests p͟o͟s͟t͟a͟l͟ , m͟e͟t͟a͟l͟o͟c͟a͟l͟y͟p͟s͟e͟ , m͟a͟y͟h͟e͟m͟ , k͟m͟f͟d͟m͟  (and many other bands)
 
 postal 1 dude and scout heavykin ... i have a lot of stuff going on and i can be very out of pocket and i get that's not exactly for everyone. i make a lot of self depriciating / sh / other weird jokes and if anything i say makes you uncomfortable PLEASE tell me. i'm trying to get better about what i say around other people
 
