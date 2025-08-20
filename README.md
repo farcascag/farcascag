@@ -1,4 +1,4 @@
-usually offtab. w2i, c+h ok if i know u (friend or friend of friend)
+usually offtab. w2i, c+h ok if i know u. no dni be normal
 
 p1 dude heavykin. scout heavykin. tf2 iwc dudecest iwc
 
