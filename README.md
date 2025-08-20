@@ -1,4 +1,4 @@
-usually offtab. w2i, c+h is okay if i know you
+usually offtab. w2i, c+h ok if i know you (friend or friend of friend)
 
 p1 + moviedude + scout fictionkin
 
