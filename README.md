@@ -1,6 +1,6 @@
-usually offtab. w2i, c+h ok if i know u.
+usually offtab. w2i, c+h ok if i know u. scout heavykin. tf2 iwc.
 
-p1 dude heavykin. scout heavykin. dni p1 x p2 shippers ...that is my son.
+p1 dude heavykin. dni p1 x p2 shippers ...that is my son.
 
 ![postal-3-postal-dude](https://github.com/user-attachments/assets/0a422f4b-c267-406c-911f-9e9ff5f87926)
 
