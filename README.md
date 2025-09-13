@@ -1,5 +1,5 @@
 
-![picmix com_2289338](https://github.com/user-attachments/assets/061d9227-eaee-467e-8009-bde2062ff463)
+![picmix com_2481178](https://github.com/user-attachments/assets/f9b66f4d-2e3a-4f9a-a544-cee852e86d60)
  ... [gunslol](http://guns.lol/boyrot) ... [sign ata](https://prophetoffalsehope.atabook.org/) ... [last.fm](https://www.last.fm/user/corpsehem) ... [spotify](https://open.spotify.com/user/31iydpcy5qoohkge2fdzy2oukuvy?si=f43be6e7120f49bc&nd=1&dlsi=f0a492e36d604d00) ... 
 
 <img width="75" height="50" alt="djc1xgm-f045be11-71bf-48c8-a64e-8b18361dc62a" src="https://github.com/user-attachments/assets/5702a621-0f2b-4b2f-b1bc-610130e9d85b" /> ![picmix com_2630899](https://github.com/user-attachments/assets/267887d0-e7a2-4294-9b02-3f83a4b1cb09)  ![picmix com_2630896](https://github.com/user-attachments/assets/f4fb37db-60f0-4209-8a58-16e693c8cea2) ![picmix com_2707969](https://github.com/user-attachments/assets/ee604c0a-a9e6-4783-a3e3-7c6be7cb544d)
