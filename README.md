@@ -1,5 +1,5 @@
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![picmix com_2481178](https://github.com/user-attachments/assets/f9b66f4d-2e3a-4f9a-a544-cee852e86d60)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![picmix com_2481178](https://github.com/user-attachments/assets/f9b66f4d-2e3a-4f9a-a544-cee852e86d60)
 [gunslol](http://guns.lol/boyrot) - [atabook](https://prophetoffalsehope.atabook.org/) - [last.fm](https://www.last.fm/user/corpsehem) - [bandcamp](https://bandcamp.com/rottedwound) 
 
 
