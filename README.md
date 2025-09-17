@@ -1,7 +1,7 @@
 
-![picmix com_2481178](https://github.com/user-attachments/assets/f9b66f4d-2e3a-4f9a-a544-cee852e86d60)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![picmix com_2481178](https://github.com/user-attachments/assets/f9b66f4d-2e3a-4f9a-a544-cee852e86d60)
 [gunslol](http://guns.lol/boyrot) - [atabook](https://prophetoffalsehope.atabook.org/) - [last.fm](https://www.last.fm/user/corpsehem) - [bandcamp](https://bandcamp.com/rottedwound) 
-<img width="20" height="20" alt="picmix com_2710817" src="https://github.com/user-attachments/assets/9718d537-febb-476d-b10f-309f9ac887d9" />  ![spycrab-crab](https://github.com/user-attachments/assets/974fe510-bc28-4dfd-810b-eff2cae7cc24) I LOVE MY WIFE
+
 
 
 <img width="549" height="400" alt="ezgif-1767b97380805e" src="https://github.com/user-attachments/assets/bfa6af88-2b52-434b-911b-20dda24adb18" />
