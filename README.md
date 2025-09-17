@@ -5,7 +5,8 @@
 <img width="20" height="20" alt="picmix com_2710817" src="https://github.com/user-attachments/assets/9718d537-febb-476d-b10f-309f9ac887d9" />  ![spycrab-crab](https://github.com/user-attachments/assets/974fe510-bc28-4dfd-810b-eff2cae7cc24) I LOVE MY WIFE
 
 
-![f322618c5c44c8091cd9b7a4611a72b0](https://github.com/user-attachments/assets/e72b92e4-c228-4149-aa73-fff1329d5e25)
+![aff68346b2f4cb4b2ae5796a44c22406](https://github.com/user-attachments/assets/1c9f7165-f885-4c97-8d4f-a701fb50ed79)
+
 
 
  ![9ed51d09](https://github.com/user-attachments/assets/1f0e881d-0776-4fbc-b221-0f8ae654ea08) <img width="99" height="56" alt="IMG_5825" src="https://github.com/user-attachments/assets/22f4f610-9bfc-4de9-8891-6d5d2ba5728e" /> ![stamp_1758067409_2f1e896da0404b668ad3aed4a6003c47](https://github.com/user-attachments/assets/39ace94e-2dfd-4605-9991-e26d5d20061f) ![picmix com_2401257](https://github.com/user-attachments/assets/65783a86-314b-4496-868a-8516e9e44ec9) ![p3-stamp-wave](https://github.com/user-attachments/assets/204ce5e7-7d03-4d4f-8c40-cb98d572a783)
