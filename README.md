@@ -6,8 +6,8 @@ NUMBER F,UCKING ONE P3 SELFSHIPPER
 
 
 
+![postal-3-postal-dude](https://github.com/user-attachments/assets/88a59f7e-fb5a-4f69-9908-9b9aae11e2a5)
 
-![0e157f537e23b7b9eb289c656984596f](https://github.com/user-attachments/assets/95a84f17-b37d-49b8-be27-3ac93ee12ef8)
 
 
  
