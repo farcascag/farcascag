@@ -2,7 +2,7 @@
 
 
 ![picmix com_2787069](https://github.com/user-attachments/assets/a3cc46e9-025e-48d1-86fc-b878e6a0dfc0)
-[gunslol](http://guns.lol/boyrot) - [atabook](https://prophetoffalsehope.atabook.org/) - [last.fm](https://www.last.fm/user/corpsehem) - [bandcamp](https://bandcamp.com/rottedwound) - [pinterest](https://www.pinterest.com/boyrotted/_profile/) ![ezgif-513b9de45b762a](https://github.com/user-attachments/assets/7c991586-308d-4f25-9ed3-7beb033f5746)
+[gunslol](http://guns.lol/boyrot) - [atabook]([https://prophetoffalsehope.atabook.org/](https://carcasfag.atabook.org/)) - [last.fm](https://www.last.fm/user/corpsehem) - [bandcamp](https://bandcamp.com/rottedwound) - [pinterest](https://www.pinterest.com/boyrotted/_profile/) ![ezgif-513b9de45b762a](https://github.com/user-attachments/assets/7c991586-308d-4f25-9ed3-7beb033f5746)
 
 
 
