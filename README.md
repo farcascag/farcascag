@@ -1,4 +1,5 @@
-NUMBER F,UCKING ONE P3 SELFSHIPPER
+TAKING A BREAK / ONLINE RARELY NOW ... DNIUF / PARTY UNLESS SHOWING AS ONLINE ![output_1759693908_01517cef987044cfa237bd43b0649aea](https://github.com/user-attachments/assets/405e4ea5-23af-4816-a7b0-b3c221aed159)
+
 
 ![picmix com_2787069](https://github.com/user-attachments/assets/a3cc46e9-025e-48d1-86fc-b878e6a0dfc0)
 [gunslol](http://guns.lol/boyrot) - [atabook](https://prophetoffalsehope.atabook.org/) - [last.fm](https://www.last.fm/user/corpsehem) - [bandcamp](https://bandcamp.com/rottedwound) - [pinterest](https://www.pinterest.com/boyrotted/_profile/)
