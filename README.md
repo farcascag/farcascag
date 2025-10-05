@@ -1,8 +1,8 @@
 NUMBER F,UCKING ONE P3 SELFSHIPPER
 
 
-ㅤㅤㅤㅤ![picmix com_2787069](https://github.com/user-attachments/assets/a3cc46e9-025e-48d1-86fc-b878e6a0dfc0)
-[gunslol](http://guns.lol/boyrot) - [atabook](https://prophetoffalsehope.atabook.org/) - [last.fm](https://www.last.fm/user/corpsehem) - [bandcamp](https://bandcamp.com/rottedwound) - [pinterest :(](https://www.pinterest.com/boyrotted/_profile/) <img width="48" height="48" alt="picmix com_2511279" src="https://github.com/user-attachments/assets/be90c02f-31be-464b-ad10-ee7b21571d26" />
+ㅤ![picmix com_2787069](https://github.com/user-attachments/assets/a3cc46e9-025e-48d1-86fc-b878e6a0dfc0)
+[gunslol](http://guns.lol/boyrot) - [atabook](https://prophetoffalsehope.atabook.org/) - [last.fm](https://www.last.fm/user/corpsehem) - [bandcamp](https://bandcamp.com/rottedwound) - [pinterest :(](https://www.pinterest.com/boyrotted/_profile/)
 
 
 
