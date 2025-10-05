@@ -7,7 +7,8 @@ NUMBER F,UCKING ONE P3 SELFSHIPPER
 
 
 
-<img width="549" height="400" alt="ezgif-1767b97380805e" src="https://github.com/user-attachments/assets/bfa6af88-2b52-434b-911b-20dda24adb18" />
+![0e157f537e23b7b9eb289c656984596f](https://github.com/user-attachments/assets/95a84f17-b37d-49b8-be27-3ac93ee12ef8)
+
 
  
 
