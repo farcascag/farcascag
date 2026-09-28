@@ -2,12 +2,9 @@
 
 
 ![picmix com_2787069](https://github.com/user-attachments/assets/a3cc46e9-025e-48d1-86fc-b878e6a0dfc0)
-[gunslol](http://guns.lol/boyrot) - [atabook](https://carcassfag.atabook.org/) - [last.fm](https://www.last.fm/user/stonetemplefggt) - [bandcamp](https://bandcamp.com/rottedwound) - [pinterest](https://www.pinterest.com/boyrotted/_profile/) - [strawp](https://andrecutmyselfman.straw.page/) ![picmix com_2790492](https://github.com/user-attachments/assets/37a4710c-66ee-40e8-a0d8-9f3a0a0d0d66)
+[gunslol](http://guns.lol/boyrot) - [atabook](https://carcassfag.atabook.org/) - [last.fm](https://www.last.fm/user/stonetemplefggt) - [bandcamp](https://bandcamp.com/rottedwound) - [strawp](https://andrecutmyselfman.straw.page/) ![picmix com_2790492](https://github.com/user-attachments/assets/37a4710c-66ee-40e8-a0d8-9f3a0a0d0d66)
 
  
-
-
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ <img width="336" height="114" alt="d64c4cc93d09e4c9d5ac3572ec4ddb8b" src="https://github.com/user-attachments/assets/69bc9e7e-ee2f-4442-b2a8-7e21dc98c084" />
 
 
 ‎ 
