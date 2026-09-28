@@ -7,7 +7,8 @@
  
 
 
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ![ezgif-236e40fb47c3ec7a](https://github.com/user-attachments/assets/de284de9-95c1-42b9-ae98-a57731c8b46d)
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ <img width="736" height="414" alt="d64c4cc93d09e4c9d5ac3572ec4ddb8b" src="https://github.com/user-attachments/assets/69bc9e7e-ee2f-4442-b2a8-7e21dc98c084" />
+
 
 ‎ 
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎‎ ‎ ‎ ‎ ‎ ‎‎ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=312o5ww33ud3cqigbofy4tfzwpre&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=000000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
