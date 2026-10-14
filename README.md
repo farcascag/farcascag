@@ -7,7 +7,7 @@
 
 
 ‎ 
- ‎ ‎ ‎ ‎ ‎‎ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=312o5ww33ud3cqigbofy4tfzwpre&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=000000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+<img width="19" height="19" alt="picmix com_2307580" src="https://github.com/user-attachments/assets/17ea9550-78d7-44be-9240-498a59a08d13" /> ‎ ‎ ‎ ‎ ‎‎ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=312o5ww33ud3cqigbofy4tfzwpre&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=000000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) 🪳
 
  ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ 
 
